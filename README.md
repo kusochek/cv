@@ -31,10 +31,13 @@ But I helped my friend make sites:
 * Ukraine, Kyiv
 
 ### Expectations:
-* friendly company
+* friendly staff
 * informal environment
 * self-improvement opportunities
 * flexible schedule
 
+### About me
+Purposeful, friendly, ambitious. I’d like to achieve the highest level. I like to improve and learn a lot. A little vulnerable.
+
 ## Hobbies:
-    Travels (I want to see the whole world), cook desserts, make up, ping-pong, play D&D, to make quests in real life.
+    Travels (I want to see the whole world), music (play on piano), cook desserts, make up, ping-pong, play D&D, to make quests in real life.

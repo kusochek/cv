@@ -1,7 +1,7 @@
 # Dontsova Oleksandra
 
 ### Summary
-* 1+ years of front-end development experience
+* 1+ years of web front-end development experience
 
 #### Front-end skills
 * React/Redux, Vue
